@@ -14,5 +14,5 @@ With every pixel exuding elegance and functionality, this Netflix clone promises
 
 Join hands with me, and together, we can revolutionize the streaming world with remarkable user experiences. This Netflix clone embodies the promise of captivating design, functionality, and user engagement. Let's create extraordinary experiences for the world, one line of code at a time!
 
-**[Your Name]**  
+**Wasif Sheikh**  
 *Front-End Web Developer Extraordinaire*
