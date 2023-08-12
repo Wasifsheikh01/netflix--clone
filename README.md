@@ -20,6 +20,8 @@ Join hands with me, and together, we can revolutionize the streaming world with 
 **#Output**
 
 
+
+
 ![Web capture_8-8-2023_122747_127 0 0 1](https://github.com/Wasifsheikh01/netflix--clone/assets/102783831/e6d5d005-f71e-4a03-bc08-d6adb6836e04)
 
 
