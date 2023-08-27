@@ -44,8 +44,19 @@ Join hands with me, and together, we can revolutionize the streaming world with 
 
 
 
+
+
+
 ![Web capture_8-8-2023_123241_127 0 0 1](https://github.com/Wasifsheikh01/netflix--clone/assets/102783831/7218c809-ab9c-48c6-8b38-4f80ad310428)
 
 
 
 ![Web capture_8-8-2023_123353_127 0 0 1](https://github.com/Wasifsheikh01/netflix--clone/assets/102783831/e9f62265-ff22-4518-b012-16bdf976d81d)
+
+
+
+
+
+
+https://github.com/Wasifsheikh01/netflix--clone/assets/102783831/7cf00af4-25d7-42b7-8094-7487f23f0efb
+
