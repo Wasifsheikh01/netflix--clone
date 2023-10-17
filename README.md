@@ -1,4 +1,4 @@
-🎉 **Impress the Hiring People with Your Netflix Clone Front-End!** 🎉
+🎉 **Impressive Netflix Clone Front-End!** 🎉
 
 Are you ready to be captivated by a stunning Netflix website clone? Look no further! Behold this awe-inspiring front-end masterpiece built with HTML5 and CSS3, meticulously crafted to mirror the iconic Netflix interface.
 
